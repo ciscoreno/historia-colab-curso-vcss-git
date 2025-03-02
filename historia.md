@@ -41,8 +41,11 @@ No tenía rostro, pero su presencia bastaba para helar la sangre.
 
 ## Capítulo 08: La verdad oculta
 "La cabaña no fue un accidente", dijo el hombre, encendiendo una antorcha.
-"Tú elegiste olvidar". Adam sintió un nudo en el estómago. ¿Por qué habría
-hecho algo así?
+"Tú elegiste olvidar". Adam sintió un nudo en el estómago.
+El hombre lo miró fijamente, como si esperara algo. "¿No lo recuerdas? ¿O lo hiciste a propósito?"
+La antorcha iluminó su rostro y Adam vio una cicatriz que no había visto antes.
+Adam intentó calmarse, pero todo lo que escuchaba no tenía sentido. No podía recordar nada.
+"Recuerda", dijo el hombre con más fuerza, "es la única forma". Adam cerró los ojos.
 
 ## Capítulo 09: Las sombras de la memoria
 Un dolor punzante recorrió su cabeza cuando intentó recordar. Imágenes borrosas
