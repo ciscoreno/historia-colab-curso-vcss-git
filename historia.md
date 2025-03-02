@@ -46,6 +46,10 @@ El hombre lo miró fijamente, como si esperara algo. "¿No lo recuerdas? ¿O lo 
 La antorcha iluminó su rostro y Adam vio una cicatriz que no había visto antes.
 Adam intentó calmarse, pero todo lo que escuchaba no tenía sentido. No podía recordar nada.
 "Recuerda", dijo el hombre con más fuerza, "es la única forma". Adam cerró los ojos.
+Luego de eso, Adam procedió a recordar el origen de su peculiar lastimadura mientras se frotaba la cicatriz.
+Trató y trató hasta que se descompuso y se desmayó. Luego de unas horas, se levantó en el suelo a unos metros de donde estaba anteriormente, 
+junto a un peculiar gato que llevaba en el collar el nombre "Manchitas".
+El gato, de color blanco con manchas naranjas, le proporcionó compañía junto al hombre misterioso hasta que pudo reincorporarse nuevamente.
 
 ## Capítulo 09: Las sombras de la memoria
 Un dolor punzante recorrió su cabeza cuando intentó recordar. Imágenes borrosas
