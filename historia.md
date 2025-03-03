@@ -79,7 +79,13 @@ consecuencias irreversibles.
 
 ## Capítulo 16: El precio de la verdad
 Escoge su camino, sabiendo que no hay vuelta atrás. La elección despierta una
-reacción en cadena que lo cambiará todo. La puerta comienza a cerrarse.
+reacción en cadena que lo cambiará todo. Mientras la puerta se cierra lentamente, 
+escucha desde fuera una voz burlona diciendole "gracias", pero ya no podía salir.
+
+Su cuerpo comenzó a desvanecerse. Sintió escalofríos y desesperación, lo invadía 
+la bronca y el rencor, se lamentaba de las decisiones que hicieron que terminara ahí 
+y el haber confiado en la persona equivocada que lo llevó a volverse el sacrificio. 
+Pero ya no podía hacer nada más que esperar al final.
 
 ## Capítulo 17: El ciclo continúa
 Cuando la luz desaparece, Adam despierta en una cabaña conocida. El sol entra
