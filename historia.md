@@ -65,8 +65,7 @@ vibró y comenzó a abrirse.
 
 ## Capítulo 13: Más allá del umbral
 Al otro lado de la puerta, la realidad parecía distorsionada. El cielo tenía un
-color imposible y la gravedad se sentía extraña. Algo le decía que había estado
-allí antes.
+color imposible y la gravedad se sentía extraña. Sintió algo que nunca habia sentido.
 
 ## Capítulo 14: Ecos de otro tiempo
 Un grupo de figuras encapuchadas lo esperaba al otro lado. "Regresaste", dijo
@@ -85,3 +84,4 @@ reacción en cadena que lo cambiará todo. La puerta comienza a cerrarse.
 Cuando la luz desaparece, Adam despierta en una cabaña conocida. El sol entra
 por las cortinas raídas. Afuera, el bosque canta con el amanecer. No recuerda
 cómo llegó allí.
+
