@@ -65,8 +65,13 @@ vibró y comenzó a abrirse.
 
 ## Capítulo 13: Más allá del umbral
 Al otro lado de la puerta, la realidad parecía distorsionada. El cielo tenía un
-color imposible y la gravedad se sentía extraña. Algo le decía que había estado
-allí antes.
+color imposible y la gravedad se sentía extraña. Sin embargo, algo le resultaba 
+familiar; tenía la sensación de haber estado allí antes, pero no lo recordaba.
+Era similar al bosque, pero distorsionado; la forma de los árboles era extraña,
+y sus sombras parecían alargarse de manera antinatural. El suelo tenía una 
+vegetación nunca antes vista, y alrededor habían criaturas misteriosas, figuras
+extrañas que no pertenecían a este mundo. Todo parecía irreal. Se sentía 
+confundido. ¿Qué era ese misterioso lugar?
 
 ## Capítulo 14: Ecos de otro tiempo
 Un grupo de figuras encapuchadas lo esperaba al otro lado. "Regresaste", dijo
