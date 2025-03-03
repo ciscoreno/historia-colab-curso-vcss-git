@@ -74,8 +74,13 @@ una voz familiar. "Pero... no eres el mismo".
 
 ## Capítulo 15: La decisión final
 Las piezas del rompecabezas finalmente encajan. Recuerda todo: el pacto, el
-sacrificio, la traición. Ahora tiene dos opciones, pero ambas tienen
-consecuencias irreversibles.
+sacrificio, la traición. Ahora tiene dos opciones, pero ambas lo devolverán
+al punto de partida.
+
+Adam se detuvo, su respiración agitada. Frente a él, las figuras encapuchadas lo 
+miraban sin decir nada. La elección que debía hacer era clara, pero la duda lo 
+atormentaba. ¿Cómo podría estar seguro de que tomaría la decisión correcta? Los 
+ecos del pasado resonaban en su mente, pero las respuestas seguían siendo esquivas.
 
 ## Capítulo 16: El precio de la verdad
 Escoge su camino, sabiendo que no hay vuelta atrás. La elección despierta una
