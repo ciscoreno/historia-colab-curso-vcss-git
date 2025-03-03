@@ -12,6 +12,13 @@ Algunas parecían ser suyas, pero otras eran más grandes y profundas. Con un
 escalofrío recorriéndole la espalda, Adam decidió seguirlas, con la esperanza de
 hallar respuestas antes de que la noche cayera.
 
+Las huellas seguían su curso, perdiéndose en la oscuridad del bosque. Adam caminaba con cautela,
+observando cada paso, sintiendo cómo la tensión crecía. En un recodo del sendero, vio algo raro:
+un objeto brillante, casi oculto bajo las hojas secas. Su corazón se aceleró, pues no podía
+entender cómo algo así había llegado allí. Decidió acercarse, temeroso de lo que pudiera encontrar.
+
+
+
 ## Capítulo 03: Ecos del pasado
 En un claro del bosque, encontró un viejo diario cubierto de barro. Al abrirlo,
 la tinta corrida dificultaba la lectura, pero una frase resaltaba con claridad:
