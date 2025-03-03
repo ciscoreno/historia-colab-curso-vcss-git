@@ -70,8 +70,12 @@ moverse por sí solas, susurrando en el silencio que lo rodeaba.
 
 Un susurro surgió de la nada, pronunciando su nombre con un eco distorsionado. Adam se detuvo,
 buscando el origen del sonido, pero solo vio el brillo de los candelabros. Su instinto le decía
-que seguir era un error, pero la curiosidad lo empujó a avanzar. A cada paso, la temperatura bajaba
-y la sensación de ser observado se hizo insoportable
+que seguir era un error, pero la curiosidad lo empujó a avanzar. A cada paso, la temperatura bajaba y la sensación de ser observado se hizo insoportable.
+
+Su corazón latía sin cesar, su respiración se aceleraba, sus piernas temblaban en ese maldito
+pasillo odirífero e infernal. Esos pensamientos, provenientes de los rincones más profundos
+de su mente, no lo dejanban ver con claridad. A pesar de todo esto, por todo lo que estaban
+pasando, Adam no se detuvo.
 
 
 ## Capítulo 13: Más allá del umbral
