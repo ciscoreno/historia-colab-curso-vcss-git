@@ -62,14 +62,14 @@ su piel. El extraño palideció al verlo. "No puede ser...", murmuró.
 Guiado por nuevas pistas, Adam llegó a una puerta de piedra en medio del bosque.
 Estaba cubierta de símbolos idénticos al de su brazo. Al tocarla, la puerta
 tembló levemente y, con un sonido profundo, comenzó a deslizarse hacia un lado.
+
 Del otro lado, un camino de piedras iluminado por candelabros se extendia hacia lo desconocido.
 El aire era pesado, impregnado de un olor a extraño y misterioso. Adam avanzo con precaución,
 sintiendo que las sombras se movian a su alrededor. A cada paso, la sensación de que no estaba
 solo crecía, haciendolo dudar si tenia que seguir adelante.
-
 A pesar de las nuevas y extrañas sensaciones, Adam siguió adelante.
 Su cabeza se llenó de los pensamientos más bizarros y primitivos, pero
-aún así, siguió caminando así lo desconocido en ese maldito y
+aún así, siguió su paso así lo desconocido en ese maldito y
 ododífero sendero hacía la locura.
 
 ## Capítulo 13: Más allá del umbral
