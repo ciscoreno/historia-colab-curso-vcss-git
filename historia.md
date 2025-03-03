@@ -61,7 +61,7 @@ su piel. El extraño palideció al verlo. "No puede ser...", murmuró.
 ## Capítulo 12: El umbral prohibido
 Guiado por nuevas pistas, Adam llegó a una puerta de piedra en medio del bosque.
 Estaba cubierta de símbolos idénticos al de su brazo. Al tocarla, la puerta
-vibró y comenzó a abrirse.
+vibró y comenzó a abrirsee.
 
 ## Capítulo 13: Más allá del umbral
 Al otro lado de la puerta, la realidad parecía distorsionada. El cielo tenía un
