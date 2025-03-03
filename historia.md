@@ -17,6 +17,8 @@ observando cada paso, sintiendo cómo la tensión crecía. En un recodo del send
 un objeto brillante, casi oculto bajo las hojas secas. Su corazón se aceleró, pues no podía
 entender cómo algo así había llegado allí. Decidió acercarse, temeroso de lo que pudiera encontrar.
 
+
+
 ## Capítulo 03: Ecos del pasado
 En un claro del bosque, encontró un viejo diario cubierto de barro. Al abrirlo,
 la tinta corrida dificultaba la lectura, pero una frase resaltaba con claridad:
