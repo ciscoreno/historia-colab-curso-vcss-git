@@ -63,6 +63,11 @@ Guiado por nuevas pistas, Adam llegó a una puerta de piedra en medio del bosque
 Estaba cubierta de símbolos idénticos al de su brazo. Al tocarla, la puerta
 vibró y comenzó a abrirse.
 
+A pesar de las nuevas y extrañas sensaciones, Adam siguió adelante.
+Su cabeza se llenó de los pensamientos más bizarros y primitivos, pero
+aún así, siguió caminando así lo desconocido en ese maldito y
+ododífero sendero hacía la locura.
+
 ## Capítulo 13: Más allá del umbral
 Al otro lado de la puerta, la realidad parecía distorsionada. El cielo tenía un
 color imposible y la gravedad se sentía extraña. Algo le decía que había estado
