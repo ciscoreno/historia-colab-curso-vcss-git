@@ -85,7 +85,12 @@ escucha desde fuera una voz burlona diciendole "gracias", pero ya no podía sali
 Su cuerpo comenzó a desvanecerse. Sintió escalofríos y desesperación, lo invadía 
 la bronca y el rencor, se lamentaba de las decisiones que hicieron que terminara ahí 
 y el haber confiado en la persona equivocada que lo llevó a volverse el sacrificio. 
-Pero ya no podía hacer nada más que esperar al final.
+Pero, en ese mismo instante, decidió que no iba a rendirse.
+
+Empieza a buscar, sin éxito, alguna forma de salir, o de abrir la puerta por la fuerza.
+En medio de la desesperación, Adam encuentra una botella junto a una nota que dice:
+"la única forma de salir es olvidar". Rendido y pensando que es su última opción,
+decide tomar el contenido, mientras lentamente siente que la luz se desvanece.
 
 ## Capítulo 17: El ciclo continúa
 Cuando la luz desaparece, Adam despierta en una cabaña conocida. El sol entra
