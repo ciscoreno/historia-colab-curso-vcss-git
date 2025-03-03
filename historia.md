@@ -11,6 +11,10 @@ El suelo húmedo alrededor de la cabaña estaba marcado por pisadas recientes.
 Algunas parecían ser suyas, pero otras eran más grandes y profundas. Con un
 escalofrío recorriéndole la espalda, Adam decidió seguirlas, con la esperanza de
 hallar respuestas antes de que la noche cayera.
+Aún confundido y un tanto cansado, intentaba concentrarse en las huellas que lograba identificar.
+Luchando con la angustia y la incertidumbre seguía avanzando, necesitaba comprender la situación,
+¿Cómo es que había llegado a esa cabaña? ¿Estaba solo? ¿Alguien lo había acompañado hasta es lugar?
+Su mente no paraba de dar vueltas al asunto, mientras intentaba pisar firme la hierba húmeda.
 
 Las huellas seguían su curso, perdiéndose en la oscuridad del bosque. Adam caminaba con cautela,
 observando cada paso, sintiendo cómo la tensión crecía. En un recodo del sendero, vio algo raro:
