@@ -21,7 +21,10 @@ observando cada paso, sintiendo cómo la tensión crecía. En un recodo del send
 un objeto brillante, casi oculto bajo las hojas secas. Su corazón se aceleró, pues no podía
 entender cómo algo así había llegado allí. Decidió acercarse, temeroso de lo que pudiera encontrar.
 
-
+Tomó aire y se inclinó para recogerlo. Era un collar de plata cubierta de barro. Sus dedos temblaban 
+al girarlo, descubriendo unas iniciales grabadas en su superficie. Miró a su alrededor con cautela, 
+notando que las huellas parecían alteradas, como si alguien hubiera intentado borrarlas. 
+El viento sopló con fuerza entre los árboles, y por un instante, creyó escuchar un susurro lejano.
 
 ## Capítulo 03: Ecos del pasado
 En un claro del bosque, encontró un viejo diario cubierto de barro. Al abrirlo,
