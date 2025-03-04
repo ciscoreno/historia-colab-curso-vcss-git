@@ -90,7 +90,12 @@ Pero ya no podía hacer nada más que aceptar su destino mientras la oscuridad l
 Un último destello iluminó su mente, como un reflejo de lo que alguna vez fue.
 Por un instante, creyó escuchar su propio nombre susurrado en la nada,
 pero antes de poder reaccionar, todo se desvaneció. Su consciencia se apagó,
-y con ella, el mundo que conocía dejó de existir.
+pero luchó para recuperarla, decidido a intentar algo.
+
+Con sus últimas fuerzas, Adam agarró el cuchillo que había encontrado antes, y,
+entendiendo lo que había sucedido, intentó volver a tallar el símbolo de la puerta en su piel,
+creyendo que, la siguiente vez, vería ese símbolo sangrando haciendo que se aleje de esa puerta.
+Finalmente, cae agotado, notando como la luz empieza a desvanecerse.
 
 ## Capítulo 17: El ciclo continúa
 Cuando la luz desaparece, Adam despierta en una cabaña conocida. El sol entra
