@@ -45,6 +45,11 @@ Por un instante, creyó ver un reflejo, como si su propia imagen se proyectara e
 Un escalofrío recorrió su espalda cuando la figura se movió, lenta pero decidida. 
 El crujido de las hojas bajo sus pies parecía venir de todas partes. La bruma parecía viva, envolviéndolo con susurros casi inaudibles. 
 Retrocedió un paso, sintiendo la urgencia de huir, pero algo en su interior lo obligó a quedarse.
+De repente, una brisa inusual despejó parte de la niebla, revelando un objeto en el suelo. 
+Un colgante de metal, con un símbolo que le resultaba inquietantemente familiar. 
+Su mano temblorosa se extendió para tomarlo, y en cuanto sus dedos rozaron el frío metal, un torrente de imágenes invadió su mente. 
+Sombras, gritos lejanos y una sensación de déjà vu lo envolvieron. 
+Algo dentro de él sabía que esta noche cambiaría todo.
 
 ## Capítulo 08: La verdad oculta
 "La cabaña no fue un accidente", dijo el hombre, encendiendo una antorcha.
