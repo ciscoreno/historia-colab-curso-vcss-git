@@ -31,6 +31,9 @@ al girarlo, descubriendo unas iniciales grabadas en su superficie. Miró a su al
 notando que las huellas parecían alteradas, como si alguien hubiera intentado borrarlas. 
 El viento sopló con fuerza entre los árboles, y por un instante, creyó escuchar un susurro lejano.
 
+
+El susurro se desvaneció en la distancia, dejando a Adam con la piel erizada y una sensación de inquietud. Sin dudarlo, se lanzó a correr, tropezando con raíces y esquivando ramas bajas, la respiración agitada. De repente, como si el bosque mismo quisiera detenerlo, las ramas de un arbusto se interpusieron en su camino, haciéndolo tropezar y rodar colina abajo. El golpe sordo contra la tierra le quitó el aire, y el dolor punzante en la rodilla lo aturdió. Con el mundo girando a su alrededor, divisó a lo lejos un resplandor de claridad en la negrura del bosque.
+
 ## Capítulo 03: Ecos del pasado
 En un claro del bosque, encontró un viejo diario cubierto de barro. Al abrirlo,
 la tinta corrida dificultaba la lectura, pero una frase resaltaba con claridad:
