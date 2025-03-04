@@ -38,7 +38,13 @@ La bruma se cernía sobre el sendero, densa y pesada, como si intentara ocultar
 algo. Cada paso resonaba en el silencio, amortiguado por la humedad del suelo.
 De repente, una silueta borrosa emergió a pocos metros, inmóvil, observando.
 No tenía rostro, pero su presencia bastaba para helar la sangre.
-El protagonista entrecerró los ojos, tratando de distinguir algún rasgo en la figura. La niebla jugaba con su percepción, distorsionando los contornos. Por un instante, creyó ver un reflejo, como si su propia imagen se proyectara en aquella sombra. ¿Era un espejismo, una advertencia, o algo más siniestro?
+El protagonista entrecerró los ojos, tratando de distinguir algún rasgo en la figura. 
+La niebla jugaba con su percepción, distorsionando los contornos. 
+Por un instante, creyó ver un reflejo, como si su propia imagen se proyectara en aquella sombra. 
+¿Era un espejismo, una advertencia, o algo más siniestro?
+Un escalofrío recorrió su espalda cuando la figura se movió, lenta pero decidida. 
+El crujido de las hojas bajo sus pies parecía venir de todas partes. La bruma parecía viva, envolviéndolo con susurros casi inaudibles. 
+Retrocedió un paso, sintiendo la urgencia de huir, pero algo en su interior lo obligó a quedarse.
 
 ## Capítulo 08: La verdad oculta
 "La cabaña no fue un accidente", dijo el hombre, encendiendo una antorcha.
