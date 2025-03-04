@@ -85,7 +85,12 @@ escucha desde fuera una voz burlona diciendole "gracias", pero ya no podía sali
 Su cuerpo comenzó a desvanecerse. Sintió escalofríos y desesperación, lo invadía 
 la bronca y el rencor, se lamentaba de las decisiones que hicieron que terminara ahí 
 y el haber confiado en la persona equivocada que lo llevó a volverse el sacrificio. 
-Pero ya no podía hacer nada más que esperar al final.
+Pero ya no podía hacer nada más que aceptar su destino mientras la oscuridad lo envolvía.
+
+Un último destello iluminó su mente, como un reflejo de lo que alguna vez fue.
+Por un instante, creyó escuchar su propio nombre susurrado en la nada,
+pero antes de poder reaccionar, todo se desvaneció. Su consciencia se apagó,
+y con ella, el mundo que conocía dejó de existir.
 
 ## Capítulo 17: El ciclo continúa
 Cuando la luz desaparece, Adam despierta en una cabaña conocida. El sol entra
