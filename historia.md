@@ -72,6 +72,7 @@ y sus sombras parecían alargarse de manera antinatural. El suelo tenía una
 vegetación nunca antes vista, y alrededor habían criaturas misteriosas, figuras
 extrañas que no pertenecían a este mundo. Todo parecía irreal. Se sentía 
 confundido. ¿Qué era ese misterioso lugar?
+Al intentar acercarse a una de estas creaturas, la misma salió corriendo. Debido a la dirección poco natural de la misma, Adam la siguió, pensando que lo estaba guiando. Empezó a correr detrás de la misma, la cual lo alentaba a apurarse. Luego de perseguirla, Adam llegó a un lugar que le resultaba familiar, pero nunca antes lo había visto.
 
 ## Capítulo 14: Ecos de otro tiempo
 Un grupo de figuras encapuchadas lo esperaba al otro lado. "Regresaste", dijo
