@@ -80,7 +80,12 @@ al punto de partida.
 Adam se detuvo, su respiración agitada. Frente a él, las figuras encapuchadas lo 
 miraban sin decir nada. La elección que debía hacer era clara, pero la duda lo 
 atormentaba. ¿Cómo podría estar seguro de que tomaría la decisión correcta? Los 
-ecos del pasado resonaban en su mente, pero las respuestas seguían siendo esquivas.
+ecos del pasado resonaban en su mente, pero el futuro dependía de su siguiente paso.
+
+El primer camino prometía una redención dolorosa, con sacrificios más grandes de los que imaginaba.
+Si elegía esta vía, tendría que enfrentarse a aquellos a los que una vez traicionó. 
+Las sombras de su traición parecían alargar su mano hacia él, recordándole lo que había perdido.
+Sin embargo, la redención siempre tiene un costo.
 
 ## Capítulo 16: El precio de la verdad
 Escoge su camino, sabiendo que no hay vuelta atrás. La elección despierta una
