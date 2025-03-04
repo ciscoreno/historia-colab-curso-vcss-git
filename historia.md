@@ -87,10 +87,16 @@ Si elegía esta vía, tendría que enfrentarse a aquellos a los que una vez trai
 Las sombras de su traición parecían alargar su mano hacia él, recordándole lo que había perdido.
 Esto alude más al dilema de Adam y sus posibles decisiones difíciles-
 
-El segundo camino lo atraía con la promesa de poder.Podía sentir la energía pulsando en el aire, llamándolo con fuerza. 
+El segundo lo atraía con la promesa de poder. Pudo sentir la energía en el aire, llamándolo con fuerza. 
 Sabía que, si lo tomaba, las reglas del mundo que conocía cambiarían para siempre. 
 Sería libre de su pasado, pero también perdería todo lo que quedaba de su antigua vida.
 Aceptar este poder significaba renunciar a su humanidad.
+
+Finalmente, Adam cerró los ojos. La decisión ya estaba tomada, aunque en su corazón aún latía la duda. 
+Un último vistazo a las figuras encapuchadas le dejó claro que lo sabían todo. No había retorno, 
+y el destino que lo esperaba al final de los caminos sería uno que nunca podría desandar. 
+De pronto, dió un paso al frente.
+
 
 ## Capítulo 16: El precio de la verdad
 Escoge su camino, sabiendo que no hay vuelta atrás. La elección despierta una
