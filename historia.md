@@ -85,7 +85,12 @@ ecos del pasado resonaban en su mente, pero el futuro dependía de su siguiente 
 El primer camino prometía una redención dolorosa, con sacrificios más grandes de los que imaginaba.
 Si elegía esta vía, tendría que enfrentarse a aquellos a los que una vez traicionó. 
 Las sombras de su traición parecían alargar su mano hacia él, recordándole lo que había perdido.
-Sin embargo, la redención siempre tiene un costo.
+Esto alude más al dilema de Adam y sus posibles decisiones difíciles-
+
+El segundo camino lo atraía con la promesa de poder.Podía sentir la energía pulsando en el aire, llamándolo con fuerza. 
+Sabía que, si lo tomaba, las reglas del mundo que conocía cambiarían para siempre. 
+Sería libre de su pasado, pero también perdería todo lo que quedaba de su antigua vida.
+Aceptar este poder significaba renunciar a su humanidad.
 
 ## Capítulo 16: El precio de la verdad
 Escoge su camino, sabiendo que no hay vuelta atrás. La elección despierta una
