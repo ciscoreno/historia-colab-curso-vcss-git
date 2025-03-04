@@ -19,7 +19,11 @@ Su mente no paraba de dar vueltas al asunto, mientras intentaba pisar firme la h
 Las huellas seguían su curso, perdiéndose en la oscuridad del bosque. Adam caminaba con cautela,
 observando cada paso, sintiendo cómo la tensión crecía. En un recodo del sendero, vio algo raro:
 un objeto brillante, casi oculto bajo las hojas secas. Su corazón se aceleró, pues no podía
-entender cómo algo así había llegado allí. Decidió acercarse, temeroso de lo que pudiera encontrar.
+entender cómo algo así había llegado allí. Decidió acercarse, sintiendo cómo su respiración se volvía más pesada con cada paso.
+Con el pulso acelerado, Adam se inclinó y apartó las hojas con cautela.
+Bajo ellas, encontró un reloj de bolsillo, su cubierta de plata reflejaba la luz de la luna.
+Al tocarlo, una sensación extraña recorrió su cuerpo, como si un recuerdo distante intentara manifestarse.
+No reconocía el objeto, pero algo en él le resultaba inquietantemente familiar.
 
 
 
