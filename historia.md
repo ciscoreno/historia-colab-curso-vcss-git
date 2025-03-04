@@ -95,7 +95,12 @@ pero luchó para recuperarla, decidido a intentar algo.
 Con sus últimas fuerzas, Adam agarró el cuchillo que había encontrado antes, y,
 entendiendo lo que había sucedido, intentó volver a tallar el símbolo de la puerta en su piel,
 creyendo que, la siguiente vez, vería ese símbolo sangrando haciendo que se aleje de esa puerta.
-Finalmente, cae agotado, notando como la luz empieza a desvanecerse.
+Finalmente, cae agotado, notando como su cuerpo va perdiendo fuerzas a cada segundo.
+
+Tirado en el suelo intentando mantener la consciencia hasta el final, apenas capaz de mantener 
+sus pesados parpados un poco abiertos, Adam mira con odio y resentimiento a las figuras encapuchadas
+frente a él mientras repasa todo lo ocurrido en su mente, tratando de pensar en alguna forma de detener esto, 
+"la próxima vez será diferente" susurra antes de perder la consciencia y hundirse en la oscuridad.
 
 ## Capítulo 17: El ciclo continúa
 Cuando la luz desaparece, Adam despierta en una cabaña conocida. El sol entra
