@@ -85,12 +85,17 @@ escucha desde fuera una voz burlona diciendole "gracias", pero ya no podía sali
 Su cuerpo comenzó a desvanecerse. Sintió escalofríos y desesperación, lo invadía 
 la bronca y el rencor, se lamentaba de las decisiones que hicieron que terminara ahí 
 y el haber confiado en la persona equivocada que lo llevó a volverse el sacrificio. 
-Pero, en ese mismo instante, decidió que no iba a rendirse.
+Pero ya no podía hacer nada más que aceptar su destino mientras la oscuridad lo envolvía.
 
-Empieza a buscar, sin éxito, alguna forma de salir, o de abrir la puerta por la fuerza.
-En medio de la desesperación, Adam encuentra una botella junto a una nota que dice:
-"la única forma de salir es olvidar". Rendido y pensando que es su última opción,
-decide tomar el contenido, mientras lentamente siente que la luz se desvanece.
+Un último destello iluminó su mente, como un reflejo de lo que alguna vez fue.
+Por un instante, creyó escuchar su propio nombre susurrado en la nada,
+pero antes de poder reaccionar, todo se desvaneció. Su consciencia se apagó,
+pero luchó para recuperarla, decidido a intentar algo.
+
+Con sus últimas fuerzas, Adam agarró el cuchillo que había encontrado antes, y,
+entendiendo lo que había sucedido, intentó volver a tallar el símbolo de la puerta en su piel,
+creyendo que, la siguiente vez, vería ese símbolo sangrando haciendo que se aleje de esa puerta.
+Finalmente, cae agotado, notando como la luz empieza a desvanecerse.
 
 ## Capítulo 17: El ciclo continúa
 Cuando la luz desaparece, Adam despierta en una cabaña conocida. El sol entra
