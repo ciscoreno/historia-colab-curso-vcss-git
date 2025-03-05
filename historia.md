@@ -100,7 +100,28 @@ De pronto, dió un paso al frente.
 
 ## Capítulo 16: El precio de la verdad
 Escoge su camino, sabiendo que no hay vuelta atrás. La elección despierta una
-reacción en cadena que lo cambiará todo. La puerta comienza a cerrarse.
+reacción en cadena que lo cambiará todo. Mientras la puerta se cierra lentamente, 
+escucha desde fuera una voz burlona diciendole "gracias", pero ya no podía salir.
+
+Su cuerpo comenzó a desvanecerse. Sintió escalofríos y desesperación, lo invadía 
+la bronca y el rencor, se lamentaba de las decisiones que hicieron que terminara ahí 
+y el haber confiado en la persona equivocada que lo llevó a volverse el sacrificio. 
+Pero ya no podía hacer nada más que aceptar su destino mientras la oscuridad lo envolvía.
+
+Un último destello iluminó su mente, como un reflejo de lo que alguna vez fue.
+Por un instante, creyó escuchar su propio nombre susurrado en la nada,
+pero antes de poder reaccionar, todo se desvaneció. Su consciencia se apagó,
+pero luchó para recuperarla, decidido a intentar algo.
+
+Con sus últimas fuerzas, Adam agarró el cuchillo que había encontrado antes, y,
+entendiendo lo que había sucedido, intentó volver a tallar el símbolo de la puerta en su piel,
+creyendo que, la siguiente vez, vería ese símbolo sangrando haciendo que se aleje de esa puerta.
+Finalmente, cae agotado, notando como su cuerpo va perdiendo fuerzas a cada segundo.
+
+Tirado en el suelo intentando mantener la consciencia hasta el final, apenas capaz de mantener 
+sus pesados parpados un poco abiertos, Adam mira con odio y resentimiento a las figuras encapuchadas
+frente a él mientras repasa todo lo ocurrido en su mente, tratando de pensar en alguna forma de detener esto, 
+"la próxima vez será diferente" susurra antes de perder la consciencia y hundirse en la oscuridad.
 
 ## Capítulo 17: El ciclo continúa
 Cuando la luz desaparece, Adam despierta en una cabaña conocida. El sol entra
