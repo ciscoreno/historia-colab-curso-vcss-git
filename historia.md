@@ -77,6 +77,10 @@ Al intentar acercarse a una de estas creaturas, la misma salió corriendo. Debid
 El paisaje era extraño, pero al mismo tiempo familiar. Recordó haber visto algo similar en un sueño recurrente. La sensación de déjà vu lo invadió mientras miraba las sombras moverse alrededor. Algo estaba a punto de suceder.
 
 Adam comenzó a caminar con cautela, sintiendo cómo el aire a su alrededor se volvía más espeso, casi tangible. Las sombras no solo se movían, sino que parecían cobrar vida, como si el propio bosque estuviera consciente de su presencia. 
+Cada rincón parece familiar, pero algo en
+el aire lo hace sentir que algo está mal, como si estuviera 
+atrapado en un ciclo del que no puede escapar.
+La puerta se cierra lentamente tras él, y por un momento, un murmullo distante lo llama desde la oscuridad del bosque.
 
 ## Capítulo 14: Ecos de otro tiempo
 Un grupo de figuras encapuchadas lo esperaba al otro lado. "Regresaste", dijo
@@ -93,9 +97,4 @@ reacción en cadena que lo cambiará todo. La puerta comienza a cerrarse.
 
 ## Capítulo 17: El ciclo continúa
 Cuando la luz desaparece, Adam despierta en una cabaña conocida. El sol entra
-por las cortinas raídas. Afuera, el bosque canta con el amanecer. No recuerda
-cómo llegó allí.
-Cada rincón parece familiar, pero algo en
-el aire lo hace sentir que algo está mal, como si estuviera 
-atrapado en un ciclo del que no puede escapar.
-La puerta se cierra lentamente tras él, y por un momento, un murmullo distante lo llama desde la oscuridad del bosque.
+por las cortinas raídas. Afuera, el bosque canta con el amanecer. 
