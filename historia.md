@@ -38,14 +38,17 @@ La bruma se cernía sobre el sendero, densa y pesada, como si intentara ocultar
 algo. Cada paso resonaba en el silencio, amortiguado por la humedad del suelo.
 De repente, una silueta borrosa emergió a pocos metros, inmóvil, observando.
 No tenía rostro, pero su presencia bastaba para helar la sangre.
+
 El protagonista entrecerró los ojos, tratando de distinguir algún rasgo en la figura. 
 La niebla jugaba con su percepción, distorsionando los contornos. 
 Por un instante, creyó ver un reflejo, como si su propia imagen se proyectara en aquella sombra. 
 ¿Era un espejismo, una advertencia, o algo más siniestro?
+
 Un escalofrío recorrió su espalda cuando la figura se movió, lenta pero decidida. 
 El crujido de las hojas bajo sus pies parecía venir de todas partes. La bruma parecía viva, envolviéndolo con susurros casi inaudibles. 
 Retrocedió un paso, sintiendo la urgencia de huir, pero algo en su interior lo obligó a quedarse.
-De repente, una brisa inusual despejó parte de la niebla, revelando un objeto en el suelo. 
+De repente, una brisa inusual despejó parte de la niebla, revelando un objeto en el suelo.
+ 
 Un colgante de metal, con un símbolo que le resultaba inquietantemente familiar. 
 Su mano temblorosa se extendió para tomarlo, y en cuanto sus dedos rozaron el frío metal, un torrente de imágenes invadió su mente. 
 Sombras, gritos lejanos y una sensación de déjà vu lo envolvieron. 
