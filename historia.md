@@ -61,7 +61,23 @@ su piel. El extraño palideció al verlo. "No puede ser...", murmuró.
 ## Capítulo 12: El umbral prohibido
 Guiado por nuevas pistas, Adam llegó a una puerta de piedra en medio del bosque.
 Estaba cubierta de símbolos idénticos al de su brazo. Al tocarla, la puerta
-vibró y comenzó a abrirse.
+tembló levemente y, con un sonido profundo, comenzó a deslizarse hacia un lado.
+
+Del otro lado, un camino de piedras iluminado por candelabros se extendia hacia lo desconocido.
+El aire era pesado, impregnado de un olor a extraño y misterioso. Adam avanzo con precaución,
+sintiendo que las sombras se movian a su alrededor. Las sombras en el pasillo parecían 
+moverse por sí solas, susurrando en el silencio que lo rodeaba.
+
+Un susurro surgió de la nada, pronunciando su nombre con un eco distorsionado. Adam se detuvo,
+buscando el origen del sonido, pero solo vio el brillo de los candelabros. Su instinto le decía
+que seguir era un error, pero la curiosidad lo empujó a avanzar.
+Una sensación de inseguridad invadió por completo a Adam.
+
+Su corazón latía sin cesar, su respiración se aceleraba, sus piernas temblaban en ese maldito
+pasillo odirífero e infernal. Esos pensamientos, provenientes de los rincones más profundos
+de su mente, no lo dejanban ver con claridad. A pesar de todo esto, por todo lo que estaban
+pasando, Adam no se detuvo.
+
 
 ## Capítulo 13: Más allá del umbral
 Al otro lado de la puerta, la realidad parecía distorsionada. El cielo tenía un
