@@ -93,4 +93,7 @@ reacción en cadena que lo cambiará todo. La puerta comienza a cerrarse.
 Cuando la luz desaparece, Adam despierta en una cabaña conocida. El sol entra
 por las cortinas raídas. Afuera, el bosque canta con el amanecer. No recuerda
 cómo llegó allí.
-
+Cada rincón parece familiar, pero algo en
+el aire lo hace sentir que algo está mal, como si estuviera 
+atrapado en un ciclo del que no puede escapar.
+La puerta se cierra lentamente tras él, y por un momento, un murmullo distante lo llama desde la oscuridad del bosque.
