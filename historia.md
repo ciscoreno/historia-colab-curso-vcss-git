@@ -39,6 +39,26 @@ algo. Cada paso resonaba en el silencio, amortiguado por la humedad del suelo.
 De repente, una silueta borrosa emergió a pocos metros, inmóvil, observando.
 No tenía rostro, pero su presencia bastaba para helar la sangre.
 
+El protagonista entrecerró los ojos, tratando de distinguir algún rasgo en la figura. 
+La niebla jugaba con su percepción, distorsionando los contornos. 
+Por un instante, creyó ver un reflejo, como si su propia imagen se proyectara en aquella sombra. 
+¿Era un espejismo, una advertencia, o algo más siniestro?
+
+Un escalofrío recorrió su espalda cuando la figura se movió, lenta pero decidida. 
+El crujido de las hojas bajo sus pies parecía venir de todas partes. La bruma parecía viva, envolviéndolo con susurros casi inaudibles. 
+Retrocedió un paso, sintiendo la urgencia de huir, pero algo en su interior lo obligó a quedarse.
+De repente, una brisa inusual despejó parte de la niebla, revelando un objeto en el suelo.
+ 
+Un colgante de metal, con un símbolo que le resultaba inquietantemente familiar. 
+Su mano temblorosa se extendió para tomarlo, y en cuanto sus dedos rozaron el frío metal, un torrente de imágenes invadió su mente. 
+Sombras, gritos lejanos y una sensación de déjà vu lo envolvieron. 
+Algo dentro de él sabía que esta noche cambiaría todo.
+
+El sonido de un murmullo rompió el silencio, como si alguien pronunciara su nombre desde la niebla. 
+Su corazón se aceleró mientras miraba a su alrededor, buscando un rostro entre las sombras. 
+La silueta de antes ya no estaba, pero la sensación de ser observado persistía. 
+El colgante pesaba en su mano, un recordatorio de que lo que acababa de encontrar no era una simple coincidencia.
+
 ## Capítulo 08: La verdad oculta
 "La cabaña no fue un accidente", dijo el hombre, encendiendo una antorcha.
 "Tú elegiste olvidar". Adam sintió un nudo en el estómago.
