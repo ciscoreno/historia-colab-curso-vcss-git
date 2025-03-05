@@ -193,5 +193,8 @@ frente a él mientras repasa todo lo ocurrido en su mente, tratando de pensar en
 
 ## Capítulo 17: El ciclo continúa
 Cuando la luz desaparece, Adam despierta en una cabaña conocida. El sol entra
-por las cortinas raídas. Afuera, el bosque canta con el amanecer. No recuerda
-cómo llegó allí.
+por las cortinas raídas. Afuera, el bosque canta con el amanecer. No tiene noción del tiempo.
+Adam siente un mareo repentino mientras la niebla se extiende por la cabaña, reduciendo su visibilidad. 
+Desesperado, recorre las habitaciones buscando la salida.
+Finalmente, cae desmayado al suelo. Al despertar, se encuentra en el mismo lugar, 
+con la sensación de haber vivido esto antes, pero sin saber por qué.
