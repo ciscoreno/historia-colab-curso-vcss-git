@@ -54,6 +54,11 @@ Su mano temblorosa se extendió para tomarlo, y en cuanto sus dedos rozaron el f
 Sombras, gritos lejanos y una sensación de déjà vu lo envolvieron. 
 Algo dentro de él sabía que esta noche cambiaría todo.
 
+El sonido de un murmullo rompió el silencio, como si alguien pronunciara su nombre desde la niebla. 
+Su corazón se aceleró mientras miraba a su alrededor, buscando un rostro entre las sombras. 
+La silueta de antes ya no estaba, pero la sensación de ser observado persistía. 
+El colgante pesaba en su mano, un recordatorio de que lo que acababa de encontrar no era una simple coincidencia.
+
 ## Capítulo 08: La verdad oculta
 "La cabaña no fue un accidente", dijo el hombre, encendiendo una antorcha.
 "Tú elegiste olvidar". Adam sintió un nudo en el estómago. ¿Por qué habría
