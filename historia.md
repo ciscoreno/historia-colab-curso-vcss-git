@@ -64,16 +64,15 @@ Estaba cubierta de símbolos idénticos al de su brazo. Al tocarla, la puerta
 vibró y comenzó a abrirse.
 
 ## Capítulo 13: Más allá del umbral
-Al otro lado de la puerta, la realidad parecía distorsionada. El cielo tenía un color 
-imposible y la gravedad se sentía extraña. Algo en el aire se movía de manera errática, 
-como si estuviera fuera de lugar. Adam sentía que el tiempo y el espacio jugaban con su 
-mente, haciendo que sus pasos se sintieran más pesados, como si caminara sobre un terreno 
-inestable.
-
-Mientras avanzaba, la extraña sensación de déjà vu lo envolvía. Había estado allí antes, 
-de alguna manera, pero no podía recordar cuándo ni por qué. El paisaje era desolado, con 
-montañas flotantes en el horizonte y ríos que parecían fluir hacia el cielo. Sin embargo, 
-lo más perturbador era la quietud, como si este lugar estuviera esperando algo o alguien.
+Al otro lado de la puerta, la realidad parecía distorsionada. El cielo tenía un
+color imposible y la gravedad se sentía extraña. Sin embargo, algo le resultaba 
+familiar; tenía la sensación de haber estado allí antes, pero no lo recordaba.
+Era similar al bosque, pero distorsionado; la forma de los árboles era extraña,
+y sus sombras parecían alargarse de manera antinatural. El suelo tenía una 
+vegetación nunca antes vista, y alrededor habían criaturas misteriosas, figuras
+extrañas que no pertenecían a este mundo. Todo parecía irreal. Se sentía 
+confundido. ¿Qué era ese misterioso lugar?
+Al intentar acercarse a una de estas creaturas, la misma salió corriendo. Debido a la dirección poco natural de la misma, Adam la siguió, pensando que lo estaba guiando. Empezó a correr detrás de la misma, la cual lo alentaba a apurarse. Luego de perseguirla, Adam llegó a un lugar que le resultaba familiar, pero nunca antes lo había visto.
 
 ## Capítulo 14: Ecos de otro tiempo
 Un grupo de figuras encapuchadas lo esperaba al otro lado. "Regresaste", dijo
