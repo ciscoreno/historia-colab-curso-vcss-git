@@ -11,6 +11,28 @@ El suelo húmedo alrededor de la cabaña estaba marcado por pisadas recientes.
 Algunas parecían ser suyas, pero otras eran más grandes y profundas. Con un
 escalofrío recorriéndole la espalda, Adam decidió seguirlas, con la esperanza de
 hallar respuestas antes de que la noche cayera.
+Aún confundido y un tanto cansado, intentaba concentrarse en las huellas que lograba identificar.
+Luchando con la angustia y la incertidumbre seguía avanzando, necesitaba comprender la situación,
+¿Cómo es que había llegado a esa cabaña? ¿Estaba solo? ¿Alguien lo había acompañado hasta es lugar?
+Su mente no paraba de dar vueltas al asunto, mientras intentaba pisar firme la hierba húmeda.
+
+Las huellas seguían su curso, perdiéndose en la oscuridad del bosque. Adam caminaba con cautela,
+observando cada paso, sintiendo cómo la tensión crecía. En un recodo del sendero, vio algo raro:
+un objeto brillante, casi oculto bajo las hojas secas. Su corazón se aceleró, pues no podía
+entender cómo algo así había llegado allí. Decidió acercarse, sintiendo cómo su respiración se volvía más pesada con cada paso.
+
+Con el pulso acelerado, Adam se inclinó y apartó las hojas con cautela.
+Bajo ellas, encontró un reloj de bolsillo, su cubierta de plata reflejaba la luz de la luna.
+Al tocarlo, una sensación extraña recorrió su cuerpo, como si un recuerdo distante intentara manifestarse.
+No reconocía el objeto, pero algo en él le resultaba inquietantemente familiar.
+
+Tomó aire y se inclinó para recogerlo. Era un collar de plata cubierta de barro. Sus dedos temblaban 
+al girarlo, descubriendo unas iniciales grabadas en su superficie. Miró a su alrededor con cautela, 
+notando que las huellas parecían alteradas, como si alguien hubiera intentado borrarlas. 
+El viento sopló con fuerza entre los árboles, y por un instante, creyó escuchar un susurro lejano.
+
+
+El susurro se desvaneció en la distancia, dejando a Adam con la piel erizada y una sensación de inquietud. Sin dudarlo, se lanzó a correr, tropezando con raíces y esquivando ramas bajas, la respiración agitada. De repente, como si el bosque mismo quisiera detenerlo, las ramas de un arbusto se interpusieron en su camino, haciéndolo tropezar y rodar colina abajo. El golpe sordo contra la tierra le quitó el aire, y el dolor punzante en la rodilla lo aturdió. Con el mundo girando a su alrededor, divisó a lo lejos un resplandor de claridad en la negrura del bosque.
 
 ## Capítulo 03: Ecos del pasado
 En un claro del bosque, encontró un viejo diario cubierto de barro. Al abrirlo,
@@ -133,8 +155,22 @@ pasando, Adam no se detuvo.
 
 ## Capítulo 13: Más allá del umbral
 Al otro lado de la puerta, la realidad parecía distorsionada. El cielo tenía un
-color imposible y la gravedad se sentía extraña. Algo le decía que había estado
-allí antes.
+color imposible y la gravedad se sentía extraña. Sin embargo, algo le resultaba 
+familiar; tenía la sensación de haber estado allí antes, pero no lo recordaba.
+Era similar al bosque, pero distorsionado; la forma de los árboles era extraña,
+y sus sombras parecían alargarse de manera antinatural. El suelo tenía una 
+vegetación nunca antes vista, y alrededor habían criaturas misteriosas, figuras
+extrañas que no pertenecían a este mundo. Todo parecía irreal. Se sentía 
+confundido. ¿Qué era ese misterioso lugar?
+Al intentar acercarse a una de estas creaturas, la misma salió corriendo. Debido a la dirección poco natural de la misma, Adam la siguió, pensando que lo estaba guiando. Empezó a correr detrás de la misma, la cual lo alentaba a apurarse. Adam se detuvo en seco, observando a su alrededor.
+ 
+El paisaje era extraño, pero al mismo tiempo familiar. Recordó haber visto algo similar en un sueño recurrente. La sensación de déjà vu lo invadió mientras miraba las sombras moverse alrededor. Algo estaba a punto de suceder.
+
+Adam comenzó a caminar con cautela, sintiendo cómo el aire a su alrededor se volvía más espeso, casi tangible. Las sombras no solo se movían, sino que parecían cobrar vida, como si el propio bosque estuviera consciente de su presencia. 
+Cada rincón parece familiar, pero algo en
+el aire lo hace sentir que algo está mal, como si estuviera 
+atrapado en un ciclo del que no puede escapar.
+La puerta se cierra lentamente tras él, y por un momento, un murmullo distante lo llama desde la oscuridad del bosque.
 
 ## Capítulo 14: Ecos de otro tiempo
 Un grupo de figuras encapuchadas lo esperaba al otro lado. "Regresaste", dijo
