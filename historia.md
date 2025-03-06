@@ -228,28 +228,10 @@ frente a él mientras repasa todo lo ocurrido en su mente, tratando de pensar en
 "la próxima vez será diferente" susurra antes de perder la consciencia y hundirse en la oscuridad.
 
 ## Capítulo 17: El ciclo continúa
-Cuando la luz desaparece, Adam despierta en una cabaña conocida. El sol entra por las cortinas raídas. 
-Afuera, el bosque canta con el amanecer. No tiene noción del tiempo.
+Cuando la luz desaparece, Adam despierta en una cabaña conocida. El sol entra por las cortinas raídas. Afuera, el bosque canta con el amanecer. No tiene noción del tiempo.
 
-Adam siente un mareo repentino mientras la niebla se extiende por la cabaña, reduciendo su visibilidad. 
-Desesperado, recorre las habitaciones buscando la salida. Finalmente, cae desmayado al suelo. 
-Al despertar, se encuentra en el mismo lugar, con la sensación de haber vivido esto antes. 
-Mareado y desconcertado, intenta levantarse.
+Adam siente un mareo repentino mientras la niebla se extiende por la cabaña, reduciendo su visibilidad. Desesperado, recorre las habitaciones buscando la salida. Finalmente, cae desmayado al suelo. Al despertar, se encuentra en el mismo lugar, con la sensación de haber vivido esto antes. Mareado y desconcertado, intenta levantarse.
 
-Incorporándose con dificultad, Adam nota que la cabaña parece diferente. Las paredes, que antes 
-eran de madera oscura, ahora tienen grietas por donde la neblina se filtra como si tuviera vida 
-propia. En el suelo, unas marcas extrañas brillan tenuemente. Un sonido lejano, parecido a un 
-susurro, resuena en su cabeza. Siente una presencia observándolo. Algo en la cabaña ha cambiado. 
-Algo acecha en la penumbra.
+Incorporándose con dificultad, Adam nota que la cabaña parece diferente. Las paredes, que antes eran de madera oscura, ahora tienen grietas por donde la neblina se filtra como si tuviera vida propia. En el suelo, unas marcas extrañas brillan tenuemente. Un sonido lejano, parecido a un susurro, resuena en su cabeza. Siente una presencia observándolo. Algo en la cabaña ha cambiado. Algo acecha en la penumbra.
 
-Un golpe seco rompe el silencio. Adam se gira, pero no hay nadie. Su respiración se agita. 
-De pronto, las marcas en el suelo comienzan a expandirse, formando un patrón inquietante. 
-Sus pies parecen hundirse en la madera, como si el suelo se ablandara. La neblina se arremolina 
-a su alrededor, y las sombras en los rincones se estiran, acercándose. Adam intenta moverse, 
-pero el miedo lo detiene.
-
-Las paredes, antes sólidas y familiares, ahora parecen latir, como si algo dentro de ellas 
-estuviera vivo. Un sonido sordo, casi imperceptible, emerge del suelo. Adam observa cómo 
-las marcas en el suelo se conectan, creando figuras geométricas, como un antiguo símbolo 
-arcano. De repente, una ráfaga de aire frío lo hace temblar. El susurro en su cabeza se 
-escucha intensificado, y es entonces cuando claramente una palabra: "Vuelve" .
+Un golpe seco rompe el silencio. Adam se gira, pero no hay nadie. Su respiración se agita. De pronto, las marcas en el suelo comienzan a expandirse, formando un patrón inquietante. Sus pies parecen hundirse en la madera, como si el suelo se ablandara. La neblina se arremolina a su alrededor, y las sombras en los rincones se estiran, acercándose. Adam intenta moverse, pero un frío paralizante lo atenaza.
