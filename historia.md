@@ -11,6 +11,28 @@ El suelo húmedo alrededor de la cabaña estaba marcado por pisadas recientes.
 Algunas parecían ser suyas, pero otras eran más grandes y profundas. Con un
 escalofrío recorriéndole la espalda, Adam decidió seguirlas, con la esperanza de
 hallar respuestas antes de que la noche cayera.
+Aún confundido y un tanto cansado, intentaba concentrarse en las huellas que lograba identificar.
+Luchando con la angustia y la incertidumbre seguía avanzando, necesitaba comprender la situación,
+¿Cómo es que había llegado a esa cabaña? ¿Estaba solo? ¿Alguien lo había acompañado hasta es lugar?
+Su mente no paraba de dar vueltas al asunto, mientras intentaba pisar firme la hierba húmeda.
+
+Las huellas seguían su curso, perdiéndose en la oscuridad del bosque. Adam caminaba con cautela,
+observando cada paso, sintiendo cómo la tensión crecía. En un recodo del sendero, vio algo raro:
+un objeto brillante, casi oculto bajo las hojas secas. Su corazón se aceleró, pues no podía
+entender cómo algo así había llegado allí. Decidió acercarse, sintiendo cómo su respiración se volvía más pesada con cada paso.
+
+Con el pulso acelerado, Adam se inclinó y apartó las hojas con cautela.
+Bajo ellas, encontró un reloj de bolsillo, su cubierta de plata reflejaba la luz de la luna.
+Al tocarlo, una sensación extraña recorrió su cuerpo, como si un recuerdo distante intentara manifestarse.
+No reconocía el objeto, pero algo en él le resultaba inquietantemente familiar.
+
+Tomó aire y se inclinó para recogerlo. Era un collar de plata cubierta de barro. Sus dedos temblaban 
+al girarlo, descubriendo unas iniciales grabadas en su superficie. Miró a su alrededor con cautela, 
+notando que las huellas parecían alteradas, como si alguien hubiera intentado borrarlas. 
+El viento sopló con fuerza entre los árboles, y por un instante, creyó escuchar un susurro lejano.
+
+
+El susurro se desvaneció en la distancia, dejando a Adam con la piel erizada y una sensación de inquietud. Sin dudarlo, se lanzó a correr, tropezando con raíces y esquivando ramas bajas, la respiración agitada. De repente, como si el bosque mismo quisiera detenerlo, las ramas de un arbusto se interpusieron en su camino, haciéndolo tropezar y rodar colina abajo. El golpe sordo contra la tierra le quitó el aire, y el dolor punzante en la rodilla lo aturdió. Con el mundo girando a su alrededor, divisó a lo lejos un resplandor de claridad en la negrura del bosque.
 
 ## Capítulo 03: Ecos del pasado
 En un claro del bosque, encontró un viejo diario cubierto de barro. Al abrirlo,
