@@ -87,30 +87,24 @@ El colgante pesaba en su mano, un recordatorio de que lo que acababa de encontra
 El hombre lo miró fijamente, como si esperara algo. "¿No lo recuerdas? ¿O lo hiciste a propósito?"
 La antorcha iluminó su rostro y Adam vio una cicatriz que no había visto antes.
 Adam intentó calmarse, pero todo lo que escuchaba no tenía sentido. No podía recordar nada.
-"Recuerda", dijo el hombre con más fuerza, "es la única forma". Adam cerró los ojos.
+"Recuerda", dijo el hombre con más fuerza, "es la única forma". Adam cerró los ojos. Algo dentro de él se removió. Un destello. Un murmullo lejano. Pero antes de que pudiera aferrarse a ello, la sensación se desvaneció.
 
-Luego de eso, Adam procedió a recordar el origen de su peculiar lastimadura mientras se frotaba la cicatriz.
-Trató y trató hasta que se descompuso y se desmayó. Luego de unas horas, se levantó en el suelo a unos metros de donde estaba anteriormente, 
-junto a un peculiar gato que llevaba en el collar el nombre "Manchitas".
-El gato, de color blanco con manchas naranjas, le proporcionó compañía junto al hombre misterioso hasta que pudo reincorporarse nuevamente.
+El esfuerzo lo dejó mareado. Se frotó la cicatriz de su sien mientras intentaba recuperar la estabilidad. Trató de recordar, de forzar su memoria, hasta que el vértigo lo venció. La oscuridad lo envolvió.
+Horas más tarde, despertó en el suelo, a unos metros de donde estaba antes. A su lado, un gato blanco con manchas naranjas lo observaba con curiosidad. En su collar se leía un nombre: Manchitas.
 
 Adam acarició a Manchitas. El nombre le sonaba familiar, pero no sabía por qué.
 El hombre misterioso lo observó en silencio. "Él también estaba allí esa noche", dijo con voz firme.
-Adam sintió un escalofrío. ¿Qué noche? Su corazón latía con fuerza. Algo estaba mal.
+Adam sintió un escalofrío. "¿Qué noche?" Su corazón latía con fuerza. Algo estaba mal.
 El hombre le arrojó un cuaderno viejo. "Léelo", ordenó.
 Adam lo tomó con manos temblorosas. La caligrafía le resultaba familiar.
 "No hay otra opción. Debo hacerlo antes de que sea tarde."
 Su propia letra. Sus propias palabras. ¿Qué significaban?
-Manchitas se acurrucó en su regazo. De repente, un recuerdo lo golpeó.
-Lluvia. Gritos. Una cabaña envuelta en llamas.
-Adam jadeó y tocó su cicatriz. Ahora lo recordaba.
-Había tomado una decisión drástica. Pero, ¿por qué?
+Las imágenes se mezclaban con el presente, borrosas y fragmentadas. Había fuego, sí. Pero ¿qué más? ¿Qué había hecho? ¿Por qué sentía que aún faltaba algo?
 Miró al hombre, aún temblando. "Dime la verdad..."
 El hombre se acercó. "Eso, Adam, es algo que solo tú puedes recordar."
 
 Adam apartó la mirada del hombre misterioso y se concentró en las páginas ajadas del cuaderno. Sus ojos se deslizaron por la tinta, buscando sentido en el caos entre las frases escritas y sus recuerdos nublados.
-Sus dedos se apretaron alrededor del cuaderno mientras su mente luchaba por encajar las piezas del rompecabezas.
-Su propia letra, sus propias palabras, su propia advertencia. Sintió un escalofrío recorrer su espalda al leer ...
+Su propia letra, sus propias palabras, su propia advertencia. Sus dedos se crisparon sobre el papel al leer:
 "La cabaña arderá. El fuego lo consumirá todo. No hay otra opción. No hay vuelta atrás."
 El recuerdo llegó como un golpe en la cabeza: el crujido de la madera ardiendo, el olor del humo ahogándolo
 "Yo..." Su voz apenas era un susurro. "Yo lo hice."
